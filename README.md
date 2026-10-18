@@ -71,4 +71,4 @@ Contributions are welcome!
 Distributed under the MIT License. See `LICENSE` for more information.
 
 ## ✉️ Contact
-Your Name - [@your_twitter](https://twitter.com) - email@example.com
+Your Name - [@musashi_2xx0](https://instagram.com) - samviper17@gmail.com.
